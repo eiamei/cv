@@ -1,0 +1,1 @@
+Just open this page https://eiamei.github.io/cv/
